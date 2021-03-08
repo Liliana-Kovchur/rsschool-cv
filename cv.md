@@ -49,4 +49,9 @@ Work experience
 
 #### 2016-2021: 
 Freelancer
+
+English
+---------
+1. English Upper-Intermediate, at the Academy  I had intensively studied business English for 3 years, took courses on E-government in English, freely communicated with foreign professors.
+
  
