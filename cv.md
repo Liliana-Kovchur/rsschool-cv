@@ -45,8 +45,11 @@ Work experience
 4. Carrying out presentations and business negotiations, preparation of commercial proposals.
 5. Document management for the project, control of the financial discipline of clients.
 
-** Сertification of a Yandex.Direct specialist**;
+##### Сertification of a Yandex.Direct specialist
 
 #### 2016-2021: 
 Freelancer
  
+English
+---------
+1. English Upper-Intermediate Intermediate, at the Academy  I had intensively studied business English for 3 years, took courses on E-government in English, freely communicated with foreign professors.
