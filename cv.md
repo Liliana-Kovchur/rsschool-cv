@@ -1,5 +1,7 @@
 Liliana Kovchur
 ========================
+![изображениеr_2021-02-28_18-06-32](https://user-images.githubusercontent.com/78361476/110320694-c1491380-8021-11eb-9bf1-f6f24d7ff05e.jpg)
+
 
 ## Personal information
 
@@ -52,4 +54,4 @@ Freelancer
  
 English
 ---------
-1. English Upper-Intermediate Intermediate, at the Academy  I had intensively studied business English for 3 years, took courses on E-government in English, freely communicated with foreign professors.
+1. English Upper-Intermediate, at the Academy  I had intensively studied business English for 3 years, took courses on E-government in English, freely communicated with foreign professors.
