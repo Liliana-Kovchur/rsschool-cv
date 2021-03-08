@@ -26,7 +26,6 @@ ACADEMY OF PUBLIC ADMINISTRATION UNDER THE AEGIES OF THE PRESIDENT OF THE REPUBL
 #### 2012-2013: 
 Additional courses - Е-government  under the guidance of the South Korean professor Taedong Oh
 
-
 #### 2020: 
 Additional courses - Adobe Photoshop
 
