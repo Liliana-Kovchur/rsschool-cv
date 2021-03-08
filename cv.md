@@ -1,6 +1,5 @@
 Liliana Kovchur
 ========================
-![изображениеr_2021-02-28_18-06-32](https://user-images.githubusercontent.com/78361476/110320694-c1491380-8021-11eb-9bf1-f6f24d7ff05e.jpg)
 
 
 ## Personal information
